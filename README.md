@@ -3,7 +3,7 @@ edited
 
 {
 sheyx added things here
-This is ganna be very khafan!
+This is ganna be very mamooli!
 }
 
 {
